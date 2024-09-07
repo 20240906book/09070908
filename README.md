@@ -32,5 +32,14 @@ go ahead
 
 go ahead
 
+購物車 串接API交易系統
+
+打卡系統 美食訂購 房間航班訂購 遊戲 登記系統 訂單系統 前端後端 圖片
+
+剪輯系統最快最佳最優化
+
+如果可以你會做甚麼
+
+歷史紀錄 每天 美城市 每個街道
 
 go aheadgo aheadgo aheadgo aheadgo aheadgo aheadgo aheadgo aheadgo ahead
