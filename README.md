@@ -5,7 +5,7 @@ Selena Gomez - Kill Em With Kindness
 
 prove
 
-
+例如餐廳 火鍋店 然後提供服務 雨傘 借用 好的傘 一天多少錢 折抵
 
 prove
 
