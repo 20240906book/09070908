@@ -4,6 +4,20 @@ Improve Your Speaking
 Improve Your Speaking
 Improve Your Speaking
 
+depends on you
+
+depends on youdepends on you
+
+
+depends on you
+
+
+理解同理心
+理解同理心
+理解同理心
+
+Simon Sinek
+西門·奈克是一位作家，因發現黃金圈法則而出名。 他的TEDx演講「偉大的領袖如何激勵行動」是TED大會裡影片最多觀看數的第7名。 他2009年關於這話題的書籍《從「為什麼」開始：偉大的領袖如何激勵行動》闡述了他所述的一切都起源於人為激勵的「為什麼」的「黃金圈」法則，從而建立企業、領導創業、激勵他人等。
 
 
 Selena Gomez - Kill Em With Kindness
