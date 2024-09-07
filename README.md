@@ -3,7 +3,13 @@
 Improve Your Speaking
 Improve Your Speaking
 
+visa 挺你去玩
 
+這一輩子就是在玩 在享受 體驗 學習 花費
+
+睡覺 飲食 喝水 呼吸 運動 聊天 溝通 任何事情
+
+任何投票ˇ
 
 
 ＩLOVEＭ＜ＹJOB
