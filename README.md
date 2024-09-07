@@ -5,6 +5,7 @@ Improve Your Speaking
 
 There you'll be 
 
+音樂 跟 照片 影響力之大 要去使用
 
 頒獎典禮 年度盛會
 
