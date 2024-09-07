@@ -3,6 +3,11 @@
 Improve Your Speaking
 Improve Your Speaking
 
+
+任何事情 學習工作 煩惱 就是在玩
+
+讓愉快融入一切是
+
 visa 挺你去玩
 
 這一輩子就是在玩 在享受 體驗 學習 花費
