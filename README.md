@@ -3,6 +3,14 @@
 Improve Your Speaking
 Improve Your Speaking
 
+There you'll be 
+
+
+頒獎典禮 年度盛會
+
+因為忘記 所以要已存在的機會跟時間日期關注度
+任何產業
+事情 都要記得 跟知名度品牌故事印象 對內對外
 
 任何事情 學習工作 煩惱 就是在玩
 
